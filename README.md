@@ -2,6 +2,20 @@
 
 ## MLB
 
+### 2005
+
+#### Saturday August 6
+
+Boston Red Sox at Minnesota Twins - Hubert H. Humphrey Metrodome
+
+Twins 4 - 3 | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2005-08-06&team=Twins&dh=0&season=2005) | [Baseball Reference](http://www.baseball-reference.com/boxes/MIN/MIN200508060.shtml)
+
+#### Sunday August 7
+
+Boston Red Sox at Minnesota Twins - Hubert H. Humphrey Metrodome
+
+Red Sox 11 - 7 | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2005-08-07&team=Twins&dh=0&season=2005) | [Baseball Reference](http://www.baseball-reference.com/boxes/MIN/MIN200508070.shtml)
+
 ### 2012
 
 #### Sunday August 5
