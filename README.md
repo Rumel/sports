@@ -2,7 +2,17 @@
 
 ## MLB
 
+### 2012
+
+#### Sunday August 5
+
+Texas Rangers at Kansas City Royals - Kauffman Stadium
+
+Royals 7 - 6 (10) | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2012_08_05_texmlb_kcamlb_1#game=2012_08_05_texmlb_kcamlb_1,game_tab=box,game_state=Wrapup)
+
 ### 2013
+
+#### Monday August 5
 
 Boston Red Sox at Houston Astros - Minute Maid Park
 
