@@ -67,7 +67,7 @@ Reds 13 - 6 | [Wrap](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2015_08_31_cin
 
 Memphis Redbirds at Omaha Storm Chasers - Werner Park
 
-Redbirds 7 - 1 | [Box](http://www.milb.com/milb/stats/stats.jsp?gid=2016_05_10_mrbaaa_omaaaa_1&t=g_box&sid=t541) | [Photos](https://photos.google.com/share/AF1QipNsmEfQjU13vKqKUCIUVZRwtafCj4QoHMZ5DV2fiyJP-9IUE3tDyNg-VLzbTZ8mLA?key=X21xTnAyckMyRUFiVmd5N0dab0lhdXp0QklfSUdR)
+Redbirds 7 - 1 | [Box](http://www.milb.com/milb/stats/stats.jsp?gid=2016_05_10_mrbaaa_omaaaa_1&t=g_box&sid=t541) | [Photos](https://photos.google.com/share/AF1QipNsmEfQjU13vKqKUCIUVZRwtafCj4QoHMZ5DV2fiyJP-9IUE3tDyNg-VLzbTZ8mLA?key=X21xTnAyckMyRUFiVmd5N0dab0lhdXp0QklfSUdR) | [Scorebook](https://drive.google.com/open?id=0B2pTnGCjzmD3Sl95TWVyTnlmNlU)
 
 ## College Baseball
 
