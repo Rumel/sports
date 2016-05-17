@@ -61,6 +61,14 @@ Reds 13 - 6 | [Wrap](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2015_08_31_cin
 
 ## MILB
 
+### 2015
+
+#### Tuesday August 11
+
+Memphis Redbirds at Omaha Storm Chasers - Werner Park
+
+Redbirds 5 - 0 | [Box](http://www.milb.com/milb/stats/stats.jsp?gid=2015_08_11_mrbaaa_omaaaa_1&t=g_box&sid=milb) | [Scorebook](https://drive.google.com/open?id=0B2pTnGCjzmD3Vi1NRGNpY2ZZTms)
+
 ### 2016
 
 #### Tuesday May 11
