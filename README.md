@@ -85,4 +85,12 @@ Redbirds 7 - 1 | [Box](http://www.milb.com/milb/stats/stats.jsp?gid=2016_05_10_m
 
 ## MLS
 
+### 2014
+
+#### Saturday March 22
+
+San Jose Quakes at Sporting Kansas City - Children's Mercy Park
+
+Sporting 1 - 0 | [Boxscore](http://matchcenter.mlssoccer.com/matchcenter/2014-03-22-sporting-kansas-city-vs-san-jose-earthquakes/boxscore) | [Photos](https://goo.gl/photos/ChFr3fTLJHGaLNeW8)
+
 ## USHL
