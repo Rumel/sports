@@ -51,7 +51,7 @@ Postponed
 
 Toronto Blue Jays at Kansas City Royals - Kauffman Stadium
 
-Blue Jays 6 - 2 | [Wrap](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2015_07_11_tormlb_kcamlb_1#game=2015_07_11_tormlb_kcamlb_1,game_state=Wrapup) | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2015_07_11_tormlb_kcamlb_1#game=2015_07_11_tormlb_kcamlb_1,game_tab=box,game_state=Wrapup)
+Blue Jays 6 - 2 | [Wrap](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2015_07_11_tormlb_kcamlb_1#game=2015_07_11_tormlb_kcamlb_1,game_state=Wrapup) | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2015_07_11_tormlb_kcamlb_1#game=2015_07_11_tormlb_kcamlb_1,game_tab=box,game_state=Wrapup) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2015-07-11&team=Royals&dh=0&season=2015) | [Baseball Reference](http://www.baseball-reference.com/boxes/KCA/KCA201507110.shtml) | [Photos](https://goo.gl/photos/gFUTN8cEmF388J11A)
 
 #### Monday August 31
 
