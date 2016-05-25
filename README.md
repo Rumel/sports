@@ -65,9 +65,9 @@ Reds 13 - 6 | [Wrap](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2015_08_31_cin
 
 #### Friday May 17
 
-Colorado Sky Sox at Round Rock Express - Dell Diamond
+Colorado Springs Sky Sox at Round Rock Express - Dell Diamond
 
-Round Rock 7 - 4 | [Box](http://www.milb.com/milb/stats/stats.jsp?sid=t102&t=g_box&gid=2013_05_17_cspaaa_rreaaa_1)
+Round Rock 7 - 4 | [Box](http://www.milb.com/milb/stats/stats.jsp?sid=t102&t=g_box&gid=2013_05_17_cspaaa_rreaaa_1) | [Photos](https://goo.gl/photos/bCUhzYfickbb4jeYA)
 
 #### Wednesday June 12
 
@@ -97,7 +97,7 @@ Redbirds 5 - 0 | [Box](http://www.milb.com/milb/stats/stats.jsp?gid=2015_08_11_m
 
 ### 2016
 
-#### Tuesday May 11
+#### Tuesday May 10
 
 Memphis Redbirds at Omaha Storm Chasers - Werner Park
 
