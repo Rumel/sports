@@ -59,6 +59,14 @@ Cincinnati Reds at Chicago Cubs - Wrigley Field
 
 Reds 13 - 6 | [Wrap](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2015_08_31_cinmlb_chnmlb_1#game=2015_08_31_cinmlb_chnmlb_1,game_state=Wrapup,game_tab=wrap) | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2015_08_31_cinmlb_chnmlb_1#game=2015_08_31_cinmlb_chnmlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2015-08-31&team=Cubs&dh=0&season=2015) | [Baseball Reference](http://www.baseball-reference.com/boxes/CHN/CHN201508310.shtml) | [Photos](https://goo.gl/photos/GZJabW3n9y9YV6WS8) | [Scorebook](https://drive.google.com/open?id=0B2pTnGCjzmD3OUNyZUMzTHBKSWs)
 
+### 2016
+
+#### Saturday May 28
+
+Chicago White Sox at Kansas City Royals - Kauffman Stadium
+
+Royals 8 - 7 | [Wrap](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_05_28_chamlb_kcamlb_1#game=2016_05_28_chamlb_kcamlb_1,game_state=Wrapup) | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_05_28_chamlb_kcamlb_1#game=2016_05_28_chamlb_kcamlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-05-28&team=Royals&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/KCA/KCA201605280.shtml) | [Scorebook](https://drive.google.com/open?id=0B2pTnGCjzmD3U1F5UHdEOFRwTW8) | [Erin's Scorecard](https://drive.google.com/open?id=0B2pTnGCjzmD3U1F5UHdEOFRwTW8) | [Photos](https://goo.gl/photos/cJJj6Ni3xx31HDcWA)
+
 ## MILB
 
 ### 2013
