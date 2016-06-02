@@ -69,6 +69,14 @@ Royals 8 - 7 | [Wrap](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_05_28_ch
 
 ## MILB
 
+### 2006
+
+#### Saturday August 19
+
+New Orleans Zephyrs at Omaha Royals - Rosenblatt Stadium
+
+Royals 5 - 4 | [Box](http://www.milb.com/milb/stats/stats.jsp?sid=t541&t=g_box&gid=2006_08_19_nozaaa_omaaaa_1) | [Scorecard](https://drive.google.com/open?id=0B2pTnGCjzmD3bFZhekNPcTROTkU)
+
 ### 2013
 
 #### Friday May 17
