@@ -95,6 +95,14 @@ Memphis Redbirds at Round Rock Express - Dell Diamond
 
 Round Rock 8 - 7 | [Box](http://www.milb.com/milb/stats/stats.jsp?sid=t102&t=g_box&gid=2013_06_20_mrbaaa_rreaaa_1) | [Photos](https://goo.gl/photos/EMQgxEiXs7zG1j277)
 
+### 2014
+
+#### Friday July 24
+
+Colorado Springs Sky Sox at Omaha Storm Chasers - Werner Park
+
+Storm Chasers 4 - 2 | [Box](http://www.milb.com/milb/stats/stats.jsp?sid=t541&t=g_box&gid=2015_07_24_cspaaa_omaaaa_1) | [Recap](http://www.milb.com/milb/stats/stats.jsp?sid=t541&t=g_log&gid=2015_07_24_cspaaa_omaaaa_1) | [Scorecard](https://drive.google.com/open?id=0B2pTnGCjzmD3SXJmYVpONm80UnM)
+
 ### 2015
 
 #### Tuesday August 11
