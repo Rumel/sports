@@ -67,6 +67,18 @@ Chicago White Sox at Kansas City Royals - Kauffman Stadium
 
 Royals 8 - 7 | [Wrap](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_05_28_chamlb_kcamlb_1#game=2016_05_28_chamlb_kcamlb_1,game_state=Wrapup) | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_05_28_chamlb_kcamlb_1#game=2016_05_28_chamlb_kcamlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-05-28&team=Royals&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/KCA/KCA201605280.shtml) | [Scorebook](https://drive.google.com/open?id=0B2pTnGCjzmD3U1F5UHdEOFRwTW8) | [Erin's Scorecard](https://drive.google.com/open?id=0B2pTnGCjzmD3SmtXMUZGelNRb3M) | [Photos](https://goo.gl/photos/cJJj6Ni3xx31HDcWA)
 
+#### Friday June 24
+
+Arizona Diamondbacks at Colorado Rockies - Coors Field
+
+Diamondbacks 10 - 9 | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_06_24_arimlb_colmlb_1#game=2016_06_24_arimlb_colmlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-06-24&team=Rockies&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/COL/COL201606240.shtml) | [Photos](https://goo.gl/photos/ouj23BfsiKCf71a69)
+
+#### Saturday June 25
+
+Arizona Diamondbacks at Colorado Rockies - Coors Field
+
+Rockies 11- 6 | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_06_25_arimlb_colmlb_1#game=2016_06_25_arimlb_colmlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-06-25&team=Rockies&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/COL/COL201606250.shtml) | [Photos](https://goo.gl/photos/ouj23BfsiKCf71a69)
+
 ## MILB
 
 ### 2006
