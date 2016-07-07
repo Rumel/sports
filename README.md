@@ -71,13 +71,13 @@ Royals 8 - 7 | [Wrap](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_05_28_ch
 
 Arizona Diamondbacks at Colorado Rockies - Coors Field
 
-Diamondbacks 10 - 9 | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_06_24_arimlb_colmlb_1#game=2016_06_24_arimlb_colmlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-06-24&team=Rockies&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/COL/COL201606240.shtml) | [Photos](https://goo.gl/photos/ouj23BfsiKCf71a69)
+Diamondbacks 10 - 9 | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_06_24_arimlb_colmlb_1#game=2016_06_24_arimlb_colmlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-06-24&team=Rockies&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/COL/COL201606240.shtml) | [Photos](https://goo.gl/photos/ouj23BfsiKCf71a69) | [Scorecard](https://drive.google.com/file/d/0B2pTnGCjzmD3U2hKbzF1ektROGc/view?usp=sharing) | [Player Sheet](https://drive.google.com/open?id=0B2pTnGCjzmD3NXVfZ3k1bHRQbG8)
 
 #### Saturday June 25
 
 Arizona Diamondbacks at Colorado Rockies - Coors Field
 
-Rockies 11- 6 | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_06_25_arimlb_colmlb_1#game=2016_06_25_arimlb_colmlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-06-25&team=Rockies&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/COL/COL201606250.shtml) | [Photos](https://goo.gl/photos/ouj23BfsiKCf71a69)
+Rockies 11- 6 | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_06_25_arimlb_colmlb_1#game=2016_06_25_arimlb_colmlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-06-25&team=Rockies&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/COL/COL201606250.shtml) | [Photos](https://goo.gl/photos/ouj23BfsiKCf71a69) | [Scorecard](https://drive.google.com/file/d/0B2pTnGCjzmD3Y2FQZ2F1c0Y0R3c/view?usp=sharing) | [Player Sheet](https://drive.google.com/open?id=0B2pTnGCjzmD3NXVfZ3k1bHRQbG8)
 
 ## MILB
 
