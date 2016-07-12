@@ -71,13 +71,13 @@ Royals 8 - 7 | [Wrap](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_05_28_ch
 
 Arizona Diamondbacks at Colorado Rockies - Coors Field
 
-Diamondbacks 10 - 9 | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_06_24_arimlb_colmlb_1#game=2016_06_24_arimlb_colmlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-06-24&team=Rockies&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/COL/COL201606240.shtml) | [Photos](https://goo.gl/photos/ouj23BfsiKCf71a69) | [Scorecard](https://drive.google.com/file/d/0B2pTnGCjzmD3U2hKbzF1ektROGc/view?usp=sharing) | [Player Sheet](https://drive.google.com/open?id=0B2pTnGCjzmD3NXVfZ3k1bHRQbG8)
+Diamondbacks 10 - 9 | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_06_24_arimlb_colmlb_1#game=2016_06_24_arimlb_colmlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-06-24&team=Rockies&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/COL/COL201606240.shtml) | [Photos](https://goo.gl/photos/ouj23BfsiKCf71a69) | [Scorecard](https://drive.google.com/file/d/0B2pTnGCjzmD3U2hKbzF1ektROGc/view?usp=sharing) | [Player Sheet](https://drive.google.com/open?id=0B2pTnGCjzmD3NXVfZ3k1bHRQbG8) | [Arizona Game Notes](http://arizona.diamondbacks.mlb.com/documents/3/9/4/185950394/2016_06_24_COL_Notes_076_hc0advru.pdf) | [Colorado Game Notes](http://colorado.rockies.mlb.com/documents/8/6/4/185787864/6.24.16_vs._ARI_9m4yzd4z.pdf)
 
 #### Saturday June 25
 
 Arizona Diamondbacks at Colorado Rockies - Coors Field
 
-Rockies 11- 6 | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_06_25_arimlb_colmlb_1#game=2016_06_25_arimlb_colmlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-06-25&team=Rockies&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/COL/COL201606250.shtml) | [Photos](https://goo.gl/photos/ouj23BfsiKCf71a69) | [Scorecard](https://drive.google.com/file/d/0B2pTnGCjzmD3Y2FQZ2F1c0Y0R3c/view?usp=sharing) | [Player Sheet](https://drive.google.com/open?id=0B2pTnGCjzmD3NXVfZ3k1bHRQbG8)
+Rockies 11- 6 | [Box](http://mlb.mlb.com/mlb/gameday/index.jsp?gid=2016_06_25_arimlb_colmlb_1#game=2016_06_25_arimlb_colmlb_1,game_state=Wrapup,game_tab=box) | [Fangraphs](http://www.fangraphs.com/boxscore.aspx?date=2016-06-25&team=Rockies&dh=0&season=2016) | [Baseball Reference](http://www.baseball-reference.com/boxes/COL/COL201606250.shtml) | [Photos](https://goo.gl/photos/ouj23BfsiKCf71a69) | [Scorecard](https://drive.google.com/file/d/0B2pTnGCjzmD3Y2FQZ2F1c0Y0R3c/view?usp=sharing) | [Player Sheet](https://drive.google.com/open?id=0B2pTnGCjzmD3NXVfZ3k1bHRQbG8) | [Colorado Game Notes](http://colorado.rockies.mlb.com/documents/5/0/0/185946500/6.25.16_vs._ARI_1iaqsafv.pdf)
 
 ## MILB
 
